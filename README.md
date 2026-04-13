@@ -6,3 +6,4 @@ https://next.petezahgames.com
 https://invisiproxy.com
 https://wea-f.github.io/Norepted/
 https://sunsett.cc
+https://reading.undetected.lol
