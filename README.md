@@ -10,3 +10,5 @@ https://reading.undetected.lol
 https://nana.rh-1.govt.hu/
 https://tinf0il.tech
 https://phosphur.etcherfx.dev
+https://cdn.jsdelivr.net/gh/pineapple-petezah/homework/main.svg
+https://zxgzmbkfogafegoaenus.supabase.co/storage/v1/object/public/test/PETEZAH/main.svg
