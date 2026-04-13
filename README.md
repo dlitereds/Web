@@ -5,7 +5,9 @@ https://browser.rammerhead.org
 https://next.petezahgames.com
 https://wea-f.github.io/Norepted/
 https://cdn.jsdelivr.net/gh/pineapple-petezah/homework/main.svg
-https://motor-cycle-part.org/
-https://d1w7oj52hl4x53.cloudfront.net/
-https://blackpeoplehistory.latinliturgy.com/.
-https://pooooof.latinliturgy.com/
+https://3e3c.org
+https://literacyadventures.com
+https://mrspechan.com
+https://creativefish.org
+https://f2fenglish.org/
+https://iqia.org/
