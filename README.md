@@ -1,5 +1,4 @@
 # Web Browsers
-https://iqtest.shela.nu
 https://apbio.b-cdn.net
 https://petezahgames.com
 https://browser.rammerhead.org
