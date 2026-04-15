@@ -1,9 +1,8 @@
 # Web Browsers
 UNBLOCKED: https://apbio.b-cdn.net
-
-https://petezahgames.com
-https://browser.rammerhead.org
 https://wea-f.github.io/Norepted/
-https://cdn.jsdelivr.net/gh/pineapple-petezah/homework/main.svg
 
-SUGGEST https://github.com/AGSPC/Feeds
+EXCLUSIVE AT HOME: https://petezahgames.com
+https://browser.rammerhead.org
+
+IDEAS: https://github.com/AGSPC/Feeds
