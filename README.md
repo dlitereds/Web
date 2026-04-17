@@ -1,5 +1,5 @@
 # Web Browsers
-**UNBLOCKED**: **https://iamnotcute.guitarhaven.com** https:/mathhelp.moorcroftmr.uk
+**UNBLOCKED**: **https://iamnotcute.guitarhaven.com** https://mathhelp.moorcroftmr.uk
 
 EXCLUSIVE AT HOME: https://petezahgames.com
 https://browser.rammerhead.org
