@@ -1,5 +1,5 @@
 # Web Browsers
-**UNBLOCKED**: **https://apbio.b-cdn.net** https://iamnotcute.guitarhaven.com
+**UNBLOCKED**: **https://iamnotcute.guitarhaven.com** https://fairfieldps.org
 
 EXCLUSIVE AT HOME: https://petezahgames.com
 https://browser.rammerhead.org
