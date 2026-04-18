@@ -8,3 +8,4 @@ https://yeet.mustline.cn
 https://invisiproxy.com
 https://nautilus-os.vercel.app
 https://canlite.org
+https://scramjet.mercurywork.shop/
