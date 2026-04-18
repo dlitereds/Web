@@ -7,3 +7,4 @@ https://wea-f.github.io/Norepted/
 https://yeet.mustline.cn
 https://invisiproxy.com
 https://nautilus-os.vercel.app
+https://monkeygg2.github.io/
